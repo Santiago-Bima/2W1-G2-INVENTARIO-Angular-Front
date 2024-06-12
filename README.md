@@ -1,0 +1,1 @@
+# 2W1-G2-INVENTARIO-Front
